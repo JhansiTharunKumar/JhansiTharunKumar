@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Big Data
 - 💞️ I’m looking to collaborate on Data Management
 - 📫 How to reach me jhansiyaladri123@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: Jaanu
 - ⚡ Fun fact: 24/7 Available
 
 <!---
